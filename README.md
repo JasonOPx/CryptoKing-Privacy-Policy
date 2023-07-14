@@ -1,4 +1,4 @@
-# Vulcan-Privacy-Policy
+
 
 # Privacy Policy
 
